@@ -1,6 +1,4 @@
 # proba2
 uprajnenie
-11111 
-fffffff
-aZ ISKAM DA OTSLABNA LALALALALALALALALALA
+lll
 
